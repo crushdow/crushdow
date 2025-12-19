@@ -2,4 +2,6 @@
 - - - - -
  ![](https://komarev.com/ghpvc/?username=retrocrush&color=grey) 
 　　 　　   ⟡　　﹒　 “  　maybe　 ill 　find 　myself　 smiling 　on 　that　 distant　 shore 　 ”
-　　 　　 　　 　　　 　　   　　 　　   　　 　　   　     “  　maybe　 im 　not 　alone 　 ”
+　　 　　 　　 　　　 　　   　　 　　   　　 　　   　     “  　maybe　 im 　not 　alone 　 ”   　　      ⟡　　﹒　
+                                        
+- - - - -
