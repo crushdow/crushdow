@@ -1,3 +1,3 @@
-![](https://64.media.tumblr.com/30a10efc103526648417e0b7617b1dd6/1c0dd47a109ab7db-93/s400x600/6d925f5e1341aab38ac97ea82758f3a1d84ba69d.gifv)
+![](https://cdn.discordapp.com/attachments/1401109680754917511/1451713529441943602/Untitled2223_20251219160916.jpg?ex=69472d14&is=6945db94&hm=1c1c05ca050b188ccbfc84c1472c05d3a84f3ddf4eb39f2dd2bf5a3645cdcb96)
 - - - - -
  ![](https://komarev.com/ghpvc/?username=retrocrush&color=grey)
