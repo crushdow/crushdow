@@ -1,4 +1,3 @@
 
-- - - - -
- ![](https://komarev.com/ghpvc/?username=retrocrush&color=grey) 
-remaking this
+
+ ![](https://komarev.com/ghpvc/?username=retrocrush&color=8B7a75&label=˚　₊　sweets　) 
