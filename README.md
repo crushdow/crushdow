@@ -10,11 +10,3 @@
 
 　　　　that　　 id　　 do　　 it　　  again　　　　　　　　　　　　𓈒　![](https://pixels.crd.co/assets/images/gallery137/e53baae4.gif?v=29416114)
 
-- - - - - - - 
-dni list
-people who are fat
-people whos first initial is r
-people who are sonic 24/7 on pt
-people who are named remi
-remi
-@kingofalejandro
