@@ -1,6 +1,6 @@
 
 
- ![](https://komarev.com/ghpvc/?username=retrocrush&color=8B7a75&label=˚　₊　sweets　) 
+ ![](https://komarev.com/ghpvc/?username=retrocrush&color=CB4938&label=˚　₊　sweets　) 
 
 　　　　　　　　　　　　![](https://pixels.crd.co/assets/images/gallery05/50e1276b.gif?v=29416114)　𓈒　　　　　　　id　　 like　　 to　　 believe
 
