@@ -1,6 +1,6 @@
 
 
- ![](https://komarev.com/ghpvc/?username=retrocrush&color=F49784&label=　˚　₊　𝚌𝚊𝚔𝚎𝚒𝚜　˚　　) 
+ ![](https://komarev.com/ghpvc/?username=retrocrush&color=F49784&label=　˚　˚　𝚌𝚊𝚔𝚎𝚒𝚜　　　) 
 
 　　　　　　　　　　　　![](https://pixels.crd.co/assets/images/gallery39/2c1f1cf1.gif?v=29416114)　𓈒　　　　　　　cold　　 hearted　　 girl　　 dont
 
