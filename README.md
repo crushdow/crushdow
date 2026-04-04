@@ -1,6 +1,6 @@
 
 
- ![](https://komarev.com/ghpvc/?username=retrocrush&color=F49784&label=　˚　˚　flames　　　) 
+ ![](https://komarev.com/ghpvc/?username=retrocrush&color=A03A2A&label=　˚　˚　feetgods　　　) 
 
 　　　　　　　　　　　　![](https://pixels.crd.co/assets/images/gallery23/fb8555af.gif?v=29416114)　𓈒　　　　　　　cold　　 hearted　　 girl　　 dont
 
