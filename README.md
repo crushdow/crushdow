@@ -1,6 +1,6 @@
 
 
- ![](https://komarev.com/ghpvc/?username=retrocrush&color=27364B&label=　˚　˚　crushhogs　　　) 
+ ![](https://komarev.com/ghpvc/?username=retrocrush&color=434445&label=　˚　˚　crushhogs　　　) 
 
 　　　　　　　　　　　　　　　　　　　 
 
