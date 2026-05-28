@@ -4,4 +4,4 @@
 
 　　　　　　　　　　[ata](https://ultimatecrush.atabook.org/)　　　　　　　　　　　　　　　 
 
-　　　　　　　　　　　 ![](https://files.catbox.moe/5yvogo.png)
+　　　　　　　　　　　 ![](https://files.catbox.moe/gudvmq.png)
