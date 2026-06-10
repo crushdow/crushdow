@@ -19,5 +19,5 @@
 　　　　　　
 　　　  　　　  　　　  
                
-　　　　　　　　　　　　　　　　　　　　　　　　[ata](https://ultimatecrush.atabook.org/)　　　 
+　　　　　　　　　　　　　　　　　　　　　　　　[ata](https://ultimatecrush.atabook.org/)　　　 　　　　　　　call me crush　　c*h and int very enc
   
