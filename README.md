@@ -1,9 +1,10 @@
 
 　　　　
- ![](https://komarev.com/ghpvc/?username=retrocrush&color=232323&label=　˚　˚　　　ᴡᴇᴍᴍʙᴜ　　　　　　) 
-
+ ![](https://komarev.com/ghpvc/?username=retrocrush&color=232323&label=　˚　˚　　　ᴡᴇᴍᴍʙᴜ　　　　　　)
+[<img src="https://files.catbox.moe/2oqbw2.png" width="250" align="right">](https://github.com/kingofalejandro)
 <img src="https://files.catbox.moe/8gcxil.png" width="250" align="left">
 <img src="https://files.catbox.moe/gu5t07.png" width="270" align="left">
+
 <br>
     <br>
          <br> 
@@ -33,3 +34,4 @@ ${\textsf{\color{#dfcce5} transcend the earthly boundaries }}$
   </table>
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31upghiqd3rph6rbigcbv76gdnji&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=cccccc&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+
