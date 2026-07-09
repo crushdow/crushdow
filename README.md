@@ -32,3 +32,4 @@ ${\textsf{\color{#dfcce5} transcend the earthly boundaries }}$
       </td>
     </tr>
   </table>
+<img src="https://files.catbox.moe/f0pmcg.png" width="270" align="left">
