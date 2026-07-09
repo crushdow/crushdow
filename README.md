@@ -12,7 +12,7 @@
   <table>
     <tr>
       <td>   
-${\textsf{\color{#dfcce5} ascend }}$  ${\textsf{\color{#bc4dcd} to }}$  ${\textsf{\color{#834dbe} holy }}$  ${\textsf{\color{#dfcce5} air }}$ and  ${\textsf{\color{#be8bd5} breathe }}$
+${\textsf{\color{#dfcce5} my }}$  ${\textsf{\color{#bc4dcd} shadow's }}$  ${\textsf{\color{#834dbe} shedding }}$  ${\textsf{\color{#dfcce5} skin }}$ 
       </td>
     </tr>
   </table>
@@ -28,8 +28,9 @@ ${\textsf{\color{#dfcce5} 𓈒 }}$ 　 ${\textsf{\color{#bc4dcd} ∿ }}$　 ${
   <table>
     <tr>
       <td>   
-${\textsf{\color{#dfcce5} transcend the earthly boundaries }}$
+${\textsf{\color{#bc4dcd} ive }}$  ${\textsf{\color{#dfcce5} been }}$ ${\textsf{\color{#834dbe} picking }}$ scabs ${\textsf{\color{#dfcce5} again }}$
       </td>
     </tr>
   </table>
+   <br>
 <img src="https://files.catbox.moe/f0pmcg.png" width="270" align="left">
