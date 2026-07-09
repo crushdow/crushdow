@@ -32,6 +32,6 @@ ${\textsf{\color{#dfcce5} transcend the earthly boundaries }}$
       </td>
     </tr>
   </table>
-
+  
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31upghiqd3rph6rbigcbv76gdnji&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=cccccc&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
