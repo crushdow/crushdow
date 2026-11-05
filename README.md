@@ -4,6 +4,11 @@
 
 　　　　　　[新book](https://ultimatecrush.atabook.org/)　　　[prnspage](https://en.pronouns.page/@crushdow)
 
+
+<img src="https://file.garden/amlJRbz-Rne7dCeO/Untitled2969_20261104192541.png" width="200" align="left">
+
+      
+
 　　　　<details>
  　　　　 <summary>friends</summary>
   
